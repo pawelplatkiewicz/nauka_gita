@@ -7,5 +7,4 @@ weofhhfihdihfHwerioerjreih
 
 - w
 - w
-dsdssdssd
-dsdssdssd
+uda sie
